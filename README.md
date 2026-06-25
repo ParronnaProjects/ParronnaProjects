@@ -1,3 +1,5 @@
-- I'm Sam
+- Sam
 - Pronouns: He/Him
-- Fun fact: no fun for you
+- Minecraft modder (beginner)
+- dogsh*t dev
+- ultrakill enjoyer (f*ck you guttertanks)
